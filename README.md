@@ -1,3 +1,2 @@
 # Diwali
-Happy Diwali <br>
-By Harshit Singh
+Happy Diwali 
