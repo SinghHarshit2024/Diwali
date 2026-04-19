@@ -1,2 +1,2 @@
-# Diwali Celebration
+# Diwali 
 
